@@ -1,2 +1,0 @@
-# msparavi.github.io
-Nai
